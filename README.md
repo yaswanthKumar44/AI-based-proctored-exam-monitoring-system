@@ -65,7 +65,7 @@ _Add screenshots or GIFs of your system in action here_
 
 ## 📬 Contact
 
-- 📧 yaswanthkumarp99@gmail.com
+- 📧 yashyaswanth714@gmail.com
 
 ---
 
